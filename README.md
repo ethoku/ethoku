@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @ethoku
+- 👀 I’m interested in chat based apps
+- 🌱 I’m currently learning how to code
+- 💞️ I’m looking to collaborate on chat
+- ⚡ Fun fact: I like money
